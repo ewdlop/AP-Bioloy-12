@@ -52,3 +52,7 @@ donor
  + 
 H2O
 water
+
+## Solar Panel
+
+it is based on the photoelectric effect and tells your parentsto  stop hating Einstein.
