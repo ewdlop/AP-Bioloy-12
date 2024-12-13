@@ -9,7 +9,7 @@ carb is nutrient
 
 ## Exerciese
 
-## USE CONDOM 
+## USE CONDOM(and wait until your classmate and your whole town knows how slutty you are)
 
 ## DRINKING AINT COOL LIKE YOU THINK 
 
@@ -18,6 +18,7 @@ I know it is cool when you get those walking aids and your classmates can sign t
 ## Chemicals are not candies
 
 ## Cigarette smells stick to people
+
 
 ## Photosynthese(redox reaction)
 
