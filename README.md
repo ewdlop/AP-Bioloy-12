@@ -9,7 +9,9 @@ carb is nutrient
 
 ## Exerciese
 
-## USE CONDOM(and wait until your classmate and your whole town knows how slutty you are)
+## USE CONDOM(and wait until your classmates and your whole town knows how slutty you are)
+
+Rushing to be parents gogoogogogogogogogogogogoogogogogogogoogogogogogogogogo
 
 ## DRINKING AINT COOL LIKE YOU THINK 
 
