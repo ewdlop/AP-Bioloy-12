@@ -15,7 +15,7 @@ Rushing to be parents gogoogogogogogogogogogogoogogogogogogoogogogogogogogogo(pr
 
 ## DRINKING AINT COOL LIKE YOU THINK 
 
-I know it is cool when you get those walking aids and your classmates can sign the memorial card of your grave and laugh at you years down the road mocking all dumb teenagers are.
+I know it is cool when you get those walking aids and your classmates can sign the memorial card of your grave and laugh at you years down the road mocking all dumb teenagers are.(and those who laughted at you are were the dumb ones)
 
 ## Chemicals are not candies
 
