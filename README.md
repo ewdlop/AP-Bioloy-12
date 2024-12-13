@@ -13,6 +13,8 @@ carb is nutrient
 
 ## DRINKING AINT COOL LIKE YOU THINK 
 
+I know it is cool when you get those walking aids and your classmates can sign the memorial card on your grave.
+
 ## Chemicals are not candies
 
 ## Cigarette smells stick to people
