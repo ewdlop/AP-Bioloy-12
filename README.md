@@ -15,7 +15,9 @@ Rushing to be parents gogoogogogogogogogogogogoogogogogogogoogogogogogogogogo(pr
 
 ## DRINKING AINT COOL LIKE YOU THINK 
 
-I know it is cool when you get those walking aids and your classmates can sign the memorial card of your grave and laugh at you years down the road mocking all dumb teenagers are.(and those who laughted at you are were the dumb ones)
+I know it is cool when you get those walking aids and your classmates can sign the memorial card of your grave and laugh at you years down the road mocking all dumb teenagers are.(and those who laughted at you are were the dumb ones).
+
+<https://www.napoleon.com/en/us/grills/blog/cooking-alcohol-what-really-happens#:~:text=Any%20alcohol%20present%20in%20a,approximately%205%25%20after%202%C2%BD%20hours>
 
 ## Chemicals are not candies
 
