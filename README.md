@@ -11,13 +11,19 @@ carb is nutrient
 
 ## USE CONDOM(and wait until your classmates and your whole town knows how slutty you are)
 
-Rushing to be parents gogoogogogogogogogogogogoogogogogogogoogogogogogogogogo
+Rushing to be parents gogoogogogogogogogogogogoogogogogogogoogogogogogogogogo(professional producers)
 
 ## DRINKING AINT COOL LIKE YOU THINK 
 
 I know it is cool when you get those walking aids and your classmates can sign the memorial card of your grave and laugh at you years down the road mocking all dumb teenagers are.
 
 ## Chemicals are not candies
+
+candies are chemicals
+
+A square is a special rectangle
+
+and rectangles arent squres.
 
 ## Cigarette smells stick to people
 
