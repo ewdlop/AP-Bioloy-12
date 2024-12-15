@@ -57,4 +57,14 @@ water
 
 ## Solar Panel
 
-it is based on the photoelectric effect and tells your parentsto  stop hating Einstein.
+it is based on the photoelectric effect and tells your parents to  stop hating on Einstein's legacy.
+
+## kwh(apply to your electircal utlitiy consumptions)
+
+kilo-watts-hour = power over time = energy * time = total amount of energy consumed over one hour
+
+## kilo-byte && mega-byte
+
+KB =1024 * 8 bit
+
+MB = 1024 * 1024 * 8 bit
