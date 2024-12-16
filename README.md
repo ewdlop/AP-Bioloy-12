@@ -75,3 +75,5 @@ MB = 1024 * 1024 * 8 bit
 # Dopamine Addition 
 
 [Porn And Anxiety: Why Watching Porn Can Lead To Panic Attacks | Porn Addiction Recovery](https://www.youtube.com/watch?v=jhbUgs40wyo)
+
+Keep blaming the dopamine. <em>It is okay it is just your hormone and dopamine.</em>
