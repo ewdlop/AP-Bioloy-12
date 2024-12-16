@@ -71,3 +71,7 @@ kilo-watts-hour = power over time = energy * time = total amount of energy consu
 KB =1024 * 8 bit
 
 MB = 1024 * 1024 * 8 bit
+
+# Dopamine Addition 
+
+<https://www.youtube.com/watch?v=jhbUgs40wyo>
