@@ -5,7 +5,7 @@ import matplotlib.pyplot as plt
 items = {
     'Liquor': {'type': 'beverage', 'alcohol_content': 40, 'calories_per_100ml': 250},
     'Wine': {'type': 'beverage', 'alcohol_content': 12, 'calories_per_100ml': 85},
-    'Beer': {'type': 'beverage', 'alcohol_content': 5, 'calories_per_100ml': 43},
+    'Beer': {'type': 'beverage', 'alcohol_content': 5, 'calories_per_100ml': 43}, //don't get trick by the look
     'Cider': {'type': 'beverage', 'alcohol_content': 6, 'calories_per_100ml': 50},
     'Vodka': {'type': 'beverage', 'alcohol_content': 40, 'calories_per_100ml': 231},
     'Sake': {'type': 'beverage', 'alcohol_content': 15, 'calories_per_100ml': 134},
