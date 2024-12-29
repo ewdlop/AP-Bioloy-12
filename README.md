@@ -36,6 +36,7 @@ and rectangles arent squres.
 
 ## Cigarette smells stick to people
 
+It smells.
 
 ## Photosynthese(redox reaction)
 
