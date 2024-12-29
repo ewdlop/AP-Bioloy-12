@@ -1,8 +1,12 @@
 # AP-Bioloy-12
 
-Hello there! This is **雷教官**!
+Hello there! This is **雷教官**! Your counselors!
 
-College Level Biology/Chemistry/Physisc/Math
+#
+
+# Learn-to-say-no https://www.girlsaskguys.com/relationships/a60920-learn-to-say-no
+
+# College Level Biology/Chemistry/Physisc/Math
 
 > We stand on the shoulders of those who have gone before us. ~What will we create for those who come after us?~ <br> ~We stand on the shoulders of those who have gone before us. What will we create for those who come after us?~
 
