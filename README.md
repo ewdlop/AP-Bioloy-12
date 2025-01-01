@@ -116,3 +116,9 @@ nor 3 body
 it is Avergardo-body
 
 # There is no free lunch.
+
+# for each loop, while loop, jump - they are call flow controls
+
+Me: kids, they are for loops. NOOBS
+
+#
