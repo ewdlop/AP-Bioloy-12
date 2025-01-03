@@ -130,4 +130,4 @@ Graudate Reminder is a graduated reminders.
 
 Do you know?
 
-#
+or [Graduate Reminder] if you what a equvilent class is.
