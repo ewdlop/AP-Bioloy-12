@@ -1,3 +1,5 @@
+# Just in case if you feel you cannot make it thorugh your own lie of your best life
+
 Sometimes the best lessons are the ones where you have to figure things out for yourself. It's like they want you to connect the dots without giving away the whole picture. Makes you think harder about what's really going on.
 
 This approach of indirect learning can be more powerful than direct instruction, since it forces you to actively engage with the material and develop your own understanding. When you discover something for yourself, it tends to stick with you longer and become more meaningful.
