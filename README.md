@@ -123,4 +123,4 @@ Me: kids, they are for loops. NOOBS
 
 ## What is graduate remainder?
 
-Besides the point.
+Besides the point. **What is/a/the/thou/ graduate remainder?**
