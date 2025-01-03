@@ -124,3 +124,10 @@ Me: kids, they are for loops. NOOBS
 ## What is graduate remainder?
 
 Besides the point. **What is/a/the/thou/ graduate remainder?**
+
+## About Graudate Reminder
+Graudate Reminder is a graduated reminders.
+
+Do you know?
+
+#
